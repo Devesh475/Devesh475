@@ -8,4 +8,4 @@
 - ⚡ Fun fact: The sentence, "The quick brown fox jumps over the lazy dog" uses every letter in the English language.
 
 #### Learning is a step by step process.
-* Taking small steps everyday to reach to the goal which I set a long time back.
+* Taking small steps everyday to reach to the goal set a long time back.
